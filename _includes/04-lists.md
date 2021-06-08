@@ -1,0 +1,3 @@
+- Videogames
+- Working out
+- having fun 
